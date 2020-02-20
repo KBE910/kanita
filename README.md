@@ -1,0 +1,2 @@
+# kanita
+ucenje kao programerica
